@@ -1,1 +1,1 @@
-# vyshlo?
+# Proekty prodavat' nehorosho
